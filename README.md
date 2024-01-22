@@ -1,2 +1,2 @@
 # unfinished-shit
-it is the big shit
+It is the big shit. Don't look at it
